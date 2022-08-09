@@ -1,0 +1,2 @@
+# verbose-kendrick
+Geek 🤓
